@@ -3,5 +3,5 @@
 ## 🌱 I’m currently learning Java
 
 ### 📧 How to reach me:
-**lovejoshi587@gmail.com**
+** Joshilove703@gmail.com**
 
